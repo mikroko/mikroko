@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mikroko
-- 👀 I’m interested in hahaha
-- 🌱 I’m currently learning c/c++
+- 👀 I’m interested in reading?
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on niubi people
 - 📫 How to reach me dream
 
